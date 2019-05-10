@@ -1,5 +1,5 @@
 # TUGAS 2 ASISTENSI ALPRO - Sabtu , 04 Mei 2019
-NAMA: Antonio Galileo Tand
+NAMA: Antonio Galileo Tando
 
 NRP: 06111840000071
 
